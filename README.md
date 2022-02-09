@@ -7,3 +7,6 @@ Redes:
 * GitHub: [FernandaOchoa](https://github.com/FernandaOchoa)
 * Twitter: [@imonsh](https://twitter.com/imonsh)
 * Instagram: [fherz8a](https://www.instagram.com/fherz8a/)
+
+Mis redes propias
+* Instagram; [johnn_torres8123] ✨
